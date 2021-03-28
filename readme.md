@@ -1,0 +1,1 @@
+Video by **[Anna Shvets](https://www.pexels.com/@shvetsa?utm_content=attributionCopyText&utm_medium=referral&utm_source=pexels)** from **[Pexels](https://www.pexels.com/photo/person-holding-a-grinder-4315555/?utm_content=attributionCopyText&utm_medium=referral&utm_source=pexels)**
